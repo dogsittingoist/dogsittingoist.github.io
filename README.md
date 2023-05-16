@@ -1,1 +1,3 @@
-# dogsittingoist.github.io
+# Dogsitting OIST
+
+Contact *Lou*!
